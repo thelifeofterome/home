@@ -1,2 +1,2 @@
 # home
-creating from scratch at like 10 pm
+https://thelifeofterome.github.io/home/
